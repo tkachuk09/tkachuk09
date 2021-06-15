@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### System Engineer from Kyiv 🇺🇦
+### Service Operations Engineer from Kyiv 🇺🇦
 
 ### Connect with me:
 
