@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### Service Operations Engineer from Kyiv 🇺🇦
+### DevOps Engineer from Kyiv 🇺🇦
 
 ### Connect with me:
 
